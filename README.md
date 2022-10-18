@@ -25,4 +25,7 @@ credit to Dude Stop for inspiration.
 credit to Please Dont Touch Anything for inspiration.
 
 
+credit to The Stanly Parible for even more inpiration.
+
+
 credit to LeBobert for writing the lines and writing the script for Tecbo to read.
