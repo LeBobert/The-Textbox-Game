@@ -14,3 +14,15 @@ credit to ShadowbreakerGD for the base script
 
 
 linky to his chanel : https://www.youtube.com/channel/UCjVX6g54M1dFtliUGy4kvsw/videos
+
+
+credit to There Is No Game for inspiration.
+
+
+credit to Dude Stop for inspiration.
+
+
+credit to Please Dont Touch Anything for inspiration.
+
+
+credit to LeBobert for writing the lines and writing the script for Tecbo to read.
